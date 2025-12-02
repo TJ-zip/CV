@@ -1,3 +1,3 @@
--------------PLEASE CLICK BELOW-----------------
+-------------PLEASE COPY AND SEARCH THE LINK BELOW-----------------
 
-tj-zip.github.io/CV/index.png
+ tj-zip.github.io/CV/index.png
